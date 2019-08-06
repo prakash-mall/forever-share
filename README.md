@@ -6,7 +6,7 @@ on practically everything - leadership, teams, books, restaurants, food, places,
 2. [what makes a great team](https://prakash-mall.github.io/forever-share/great-team)
 
 
-Reach out to Prakash Mall at 
-email - prakashmall@yahoo.com, 
-linkedin - https://www.linkedin.com/in/prakashmall
-twitter - @prakashmall
+Reach out to Prakash Mall at
+* email - prakashmall@yahoo.com, 
+* linkedin - https://www.linkedin.com/in/prakashmall
+* twitter - @prakashmall
