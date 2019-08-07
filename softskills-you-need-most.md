@@ -7,26 +7,26 @@ That’s why [57% of senior leaders](https://learning.linkedin.com/resources/wor
 What are the soft skills companies are looking for most in 2019? They are:
 
 
-1. **Creativity**
+**Creativity**
 
 While robots are great at optimizing old ideas, [organizations most need creative employees](https://learning.linkedin.com/blog/top-skills/why-creativity-is-the-most-important-skill-in-the-world?trk=lilblog_01-01-19_skills-companies-need-most_tl&cid=70132000001AyziAAC) who can conceive the solutions of tomorrow.
 
 
-2. **Persuasion**
+**Persuasion**
 
 Having a great product, a great platform or a great concept is one thing, but the key is persuading people to buy into it.
 
 
-3. **Collaboration**
+**Collaboration**
 
 As projects grow increasingly more complex and global in the age of AI, effective collaboration only grows more important.
 
 
-4. **Adaptability**
+**Adaptability**
 
 An adaptable mind is an essential tool for navigating today’s ever-changing world, as yesterday’s solutions won’t solve tomorrow’s problems.
 
 
-5. **Time Management**
+**Time Management**
 
 A timeless skill, mastering time management today will serve you the rest of your career.
