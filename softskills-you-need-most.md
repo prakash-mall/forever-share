@@ -1,4 +1,4 @@
-
+## SoftSkills you need most ##
 
 Strengthening a soft skill is one of the best investments you can make in your career, as they never go out of style. Plus, the rise of AI is only making soft skills increasingly important, as they are precisely the type of skills robots can’t automate.
 
