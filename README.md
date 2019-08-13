@@ -4,6 +4,7 @@ on practically everything - leadership, teams, books, restaurants, food, places,
 
 1. [what makes a great manager](https://prakash-mall.github.io/forever-share/great-manager)
 2. [what makes a great team](https://prakash-mall.github.io/forever-share/great-team)
+3. [Soft skills you need most](https://prakash-mall.github.io/forever-share/softskills-you-need-most)
 
 
 Reach out to Prakash Mall at
