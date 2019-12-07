@@ -7,9 +7,9 @@
   
 2.	an environment, a culture, an ecosystem
     * to discuss and debate, a platform to disagree
-    * that nurtures diversity in true form and appreciates different perspective, 
+    * that nurtures diversity in true form and appreciates different perspective
     * that cultivates innovation everyday
-    * understand urgency and accelerates decision making
+    * that understands urgency and accelerates decision making
 3.	a mindset that goes beyond boundaries – geographical, organizational, team, etc
 4.	invest in team
     * a belief in people, help grow and nurture, identify strength and be a multiplier, help with opportunities (and not use it to show down)
