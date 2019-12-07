@@ -5,7 +5,7 @@
     * mutual respect and candor
     * trust and openness
   
-2.	an environment, an culture, an ecosystem
+2.	an environment, a culture, an ecosystem
     * to discuss and debate, a platform to disagree
     * that nurtures diversity in true form and appreciates different perspective, 
     * that cultivates innovation everyday
