@@ -7,6 +7,8 @@ on practically everything - leadership, teams, books, restaurants, food, places,
 3. [soft skills you need most](https://prakash-mall.github.io/forever-share/softskills-you-need-most)
 4. [what do i belief in](https://prakash-mall.github.io/forever-share/beliefs)
 5. [Tips for interview](https://prakash-mall.github.io/forever-share/interview-tips)
+6. [My job characterstics](https://prakash-mall.github.io/forever-share/prakash-JD)
+
 
 
 Reach out to Prakash Mall at
